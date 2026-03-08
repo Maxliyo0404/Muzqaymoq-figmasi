@@ -1,0 +1,1 @@
+# Muzqaymoq-figmasi
